@@ -42,7 +42,7 @@ Ce repo contient mon avancement jour après jour basé sur le cours de [Dr. Ange
 
 ## 🔥 Suivre mon parcours
 
-Je partage aussi mes progrès sur Twitter (X) → [@TonPseudo](https://twitter.com/momodouba44)  
+Je partage aussi mes progrès sur Twitter (X) → [@momodouba44](https://twitter.com/momodouba44)  
 N'hésite pas à me ping si tu veux échanger ou faire le challenge ensemble 🙌
 
 
